@@ -1,0 +1,1 @@
+- 👋 Hi, I’m @ReVofTeleportation and I'm a newbie who is trying to learn to code and get blockchain experience. Just gonna stay in my own lane while I learn the basics. Somehow I stumbled into github.
